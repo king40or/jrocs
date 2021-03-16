@@ -1,0 +1,1 @@
+# jrocs studying this has been a confusing challenge, i can defanitly say i have learned that i have a lot to learn. I hope to continue but with some guided help of do's in don'ts. Its been fun so far, and maybe some of yall can help bring a few of my ideas alive.
